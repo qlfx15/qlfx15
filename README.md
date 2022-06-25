@@ -2,7 +2,17 @@
 - 👀 EWQHY43QAY4JQ39WOI8HY498Q3H4YT98QHGY4T83H9T4Y387T34WGT7Y8OW3GHT843IUTHY438W74YTGSNTA4H
 - 🌱 awsegwaqg3t2yq4aquyh43qahasjtrsjuh5t4wsu54wqujaRESAHY437Y4TSJH23QY453QTJSUYRTS#U5#RTESA#E43###REJUH#####SRTH#54WUH#@@@@H543WAE@SRT@@RTHS@@@RTE@RES@@@HU3E54WU@@@@@@@!!!!!!4RE3SWAH4AWS3!!!!!!!!!!!!!!#EQWYHG
 - 💞️ SUYRTS#U5#RTESA#E43###REJUH#####SRTH#54WUH#@@@@H543WAE@SRT@@RTSJH23QY45
-- 📫 How to reach me ...
+- 📫 SAVE YOUR BACKUP CODES
+Keep these backup codes somewhere safe but accessible.
+1. 3930 1379		 6. 9732 3987
+2. 2722 0723		 7. 6323 4770
+3. 1484 9108		 8. 4785 6849
+4. 4708 4007		 9. 9981 4062
+5. 3067 7056		10. 6034 5625
+* You can only use each backup code once.
+* Need more? Visit https://g.co/2sv
+* These codes were generated on: Jun 25, 2022.
+
 
 <!---
 qlfx15/qlfx15 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
